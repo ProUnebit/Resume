@@ -1,4 +1,4 @@
-### 📋 Resume
+###🔥 Resume
 
 **Link:** [**WEB CV**](https://alexey-ratnikov.notion.site/alexey-ratnikov/Resume-ef570e4304fa4ace813ad839b4f6fe02)
 
