@@ -8,6 +8,7 @@
 
 - - -
 **For communication:** <br>
+[Linkedin](https://www.linkedin.com/in/alexey-ratnikov) <br>
 [t.me/ProUnebit](https://t.me/ProUnebit) <br>
 <ProUnebit@yandex.ru> <br>
 <ProUnebit@gmail.com>
