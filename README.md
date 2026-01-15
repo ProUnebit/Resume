@@ -1,5 +1,5 @@
+- - -
 ### 📰 Resume
-
 
 **WEV CV Link:** EN, [**RUS**](https://alexey-ratnikov.notion.site/alexey-ratnikov/Resume-ef570e4304fa4ace813ad839b4f6fe02) <br>
 **Download CV:** EN, [**RUS**](https://github.com/ProUnebit/Resume/raw/refs/heads/main/RUS/CV_RUS_Alexey_Ratnikov.rar) 
