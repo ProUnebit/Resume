@@ -5,8 +5,8 @@
 **Download CV:** [**EN**](https://github.com/ProUnebit/Resume/raw/refs/heads/main/EN/Alexey_Ratnikov_Resume_EN_photo_1.rar), [**RUS**](https://github.com/ProUnebit/Resume/raw/refs/heads/main/RUS/Alexey_Ratnikov_Resume_RU_photo_1.rar) 
 - - -
 
-![](https://raw.githubusercontent.com/ProUnebit/Resume/main/EN/Resume%20(Alexey%20Ratnikov)%20v4-en.jpg)
-
+![](https://raw.githubusercontent.com/ProUnebit/Resume/main/EN/Alexey_Ratnikov_Resume_EN_photo_page1.jpg)
+![](https://raw.githubusercontent.com/ProUnebit/Resume/main/EN/Alexey_Ratnikov_Resume_EN_photo_page2.jpg)
 - - -
 **For communication:** <br>
 [Linkedin](https://www.linkedin.com/in/alexey-ratnikov) <br>
